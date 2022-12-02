@@ -1,4 +1,4 @@
-Welcome to the home page for the Cretan Mantinades wiki!
+Wiki containing a comprehensive collection of Cretan Mantinades
 
 ## Complete Songs
 
